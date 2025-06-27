@@ -1,0 +1,1 @@
+zmiany na tif 
